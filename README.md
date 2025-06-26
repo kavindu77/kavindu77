@@ -13,7 +13,7 @@
 🌊 Flowing through **Java, Python, Web Dev**  
 ☀️ Soaking up **Cybersecurity** knowledge  
 🍃 Sharing thoughts at [PeaceCoder](https://peacecoder.blogspot.com/)  
-🌺 Fun fact: My friends call me **Izza**!  
+🌺 Fun fact: Me call me **Izza**!  
 
 ---
 
